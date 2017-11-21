@@ -1,3 +1,3 @@
-## Persian Language Resouces -- Department of Linguistics, University of Arizona;
+## Persian Language Resources -- Department of Linguistics, University of Arizona;
 
 
